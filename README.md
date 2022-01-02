@@ -8,9 +8,9 @@ Max score: 5 :beer:
 
 If you found it useful please give a star :)
 
-
 ---
 
+<br>
 
 ## Looking for Alaska by John Green :beer: :beer: :beer: :beer:
 
@@ -18,6 +18,7 @@ I don't know why I read this book. Maybe I wanted something like Catcher In The 
 
 The blowjob scene was really unnecessary.
 
+<br>
 
 ## SPIN by Robert Charles Wilson :beer: :beer: :beer: :beer:
 
@@ -29,6 +30,7 @@ There are 2 more books in the series. But I heard action in them is even slower 
 
 Looks like an author who likes jazz, and he mentioned a few artist names on the pages. That's how I discovered this lovely song  - The Girl from Ipanema by Stan Getz.
 
+<br>
 
 ## Blindsight by Peter Watts :beer: :beer: :beer: :beer: :beer:
 
